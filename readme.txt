@@ -1,2 +1,0 @@
-Isto é uma palhaçada!
-
